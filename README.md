@@ -1,2 +1,0 @@
-# sozawe
-defund
